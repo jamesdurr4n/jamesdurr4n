@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jamesdurr4n
+- 👀 I’m interested in art + fashion
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on everything
+- 📫 How to reach me 
